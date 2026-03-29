@@ -18,7 +18,7 @@
 ---
 
 ## Відео роботи програми
-
+https://github.com/user-attachments/assets/51b4072a-6052-4006-b847-6520a2179ce0
 
 
 
